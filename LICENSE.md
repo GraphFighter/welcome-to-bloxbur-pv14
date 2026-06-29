@@ -1,4 +1,4 @@
-
+3008 Script secure is the best 3008 Script, featuring auto-farm and no clip. Safe and powerful for all your needs.
 
 
 
